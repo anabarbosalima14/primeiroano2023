@@ -1,2 +1,4 @@
 # primeiroano2023
 Colégio Estadual Cívico Militar Presidente Vargas - Bela Vista do Paraíso
+
+## Meu nome é Ana Clara Barbosa de Lima, tenho 16 anos e sou estudande do Colégio Estadual Cívico Militar Presidente Vargas e atualmente estou no 1 ano do ensino médio. Sou aluna de Pensamento Computacional e vou criar um site no 3 trimestre. Moro em Bela Vista do Paraíso, sou uma pessoa legal, gentil, amigável, carinhosa, paciênte e um pouco estressada. Gosto de conversar e sair com minhas amigas, passear com a família, desenhar, jogar, dançar, cantar, comer e dormir. Minhas comidas preferidas é macarrão e sorvete. Atualmente tenho as melhores amigas que eu poderia ter, são pessoas que considero como minhas irmãs de outra família e espero levar a amizade delas para a vida toda. Espero me sair bem esse ano na escola e conseguir passar para o 2 ano, ano que vem para futuramente conseguir passar em uma faculdade e arrumar um bom emprego e ser bem sucedida na vida.
